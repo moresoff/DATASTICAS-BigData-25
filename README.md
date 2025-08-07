@@ -1,1 +1,0 @@
-# DAT-STICAS---Big-data-25
